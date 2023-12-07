@@ -1,1 +1,1 @@
-# Practice kula harde
+# Practice kula hard
